@@ -1,12 +1,26 @@
-#  Mohammadir20💙
+#  In The Name Of god🧡☪
 
-##  skils
+##  Mohammadir20💙
+Is Of Iranian Programmer🇮🇷
+---
+
+###  skils
 -  Python ✔
 -  Rubika Bot ✔
 
-###  lerning:
+---   
+####  learning:
 -  Html ...
 -  Css ...
 -  javascript ...
+---  
+####  Tools:
+- Vscode
+---
+
+```
+Just Do It !💙
+```
+
 
 
