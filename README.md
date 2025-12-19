@@ -1,6 +1,7 @@
-#  In The Name Of god🧡☪
+#  In The Name Of Allah🧡☪
 
 ##  Mohammadir20💙
+---
 Is Of Iranian Programmer🇮🇷
 ---
 
