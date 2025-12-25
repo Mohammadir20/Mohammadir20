@@ -22,6 +22,8 @@ Is Of Iranian Programmer🇮🇷
 ```
 Just Do It !💙
 ```
-
+```
+God Bye🧡🧡
+```
 
 
